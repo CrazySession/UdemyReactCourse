@@ -1,1 +1,1 @@
-/* pure guy just created for one purpose */
+/* poor guy just created for one purpose */
